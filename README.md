@@ -2,6 +2,7 @@
 
 Originally published on November 24, 2002 at ohjelmointiputka.net by **scapegoat.moa**
 
+***Ferthu hál*** ❤️
 
 # Description
 
